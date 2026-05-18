@@ -1,3 +1,3 @@
 ![silv](https://i.imgur.com/yyndpys.gif)
 
-[ATABOOK](https://infugue.atabook.org/)
+[ata](https://infugue.atabook.org/)
