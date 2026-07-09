@@ -3,4 +3,4 @@
 <img src="https://file.garden/akznOd94TlocQojJ/Silverpetpet.gif" width="120">
 
 
-THANK U FOR MAKING THIS WEN!!! SO CUTE AWW ME AS A PONY
+me as a pony (THANK U SO MUCH FOR MAKING THIS WEN!!!!)
