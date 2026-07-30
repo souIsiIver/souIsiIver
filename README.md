@@ -8,4 +8,4 @@ TYSM FOR MAKING THIS [@AshesOfHerHalo](https://github.com/AshesOfHerHalo)!!!
 
 YO GUYS
 
-<img src="https://i.imgur.com/kLipyBC.jpeg" width="120">
+<img src="https://i.imgur.com/kLipyBC.jpeg" width="360px">
