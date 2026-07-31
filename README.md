@@ -6,6 +6,6 @@ me as a pony
 
 TYSM FOR MAKING THIS [@AshesOfHerHalo](https://github.com/AshesOfHerHalo)!!!
 
-YO GUYS
+YO GUYS GUESS WHO TOOK UR "CALLOUUT" DOWN
 
 <img src="https://i.imgur.com/kLipyBC.jpeg" width="360px">
