@@ -2,5 +2,5 @@
 
 art not mine!!
 
-<img src="https://i.imgur.com/jIsVaCR.png" width="320">
+<img src="https://i.imgur.com/jIsVaCR.png" width="360">
 
