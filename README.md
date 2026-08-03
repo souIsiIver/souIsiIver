@@ -4,4 +4,4 @@ art not mine!!
 
 <img src="https://i.imgur.com/jIsVaCR.png" width="360">
 
-sign my [atabook](https://infugue.atabook.org/)! ^^
+sign my [atabook](https://infugue.atabook.org/) ^^
