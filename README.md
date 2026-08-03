@@ -1,9 +1,9 @@
 <div align="center">
 
 <p align="center">
-  <img src="https://komarev.com/ghpvc/?username=souIsiIver&color=red&label=♡&abbreviated=true" /
+  <img src="https://komarev.com/ghpvc/?username=souIsiIver&color=red&label=♡&abbreviated=true" / 
 
-v
+
 
 art isnt mine!!
 
