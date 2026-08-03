@@ -1,6 +1,6 @@
 <div align="center">
 
-  <img src="https://komarev.com/ghpvc/?username=souIsiIver&color=red&label=♡&abbreviated=true" /
+  <img src="https://komarev.com/ghpvc/?username=souIsiIver&color=red&label=♡&abbreviated=true"
 
 art not mine!!
 
