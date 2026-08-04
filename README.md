@@ -5,6 +5,6 @@
 
 <img src="https://i.imgur.com/jIsVaCR.png" width="360px">  <br>
 
-art isnt mine!!
+art isnt mine!! ^^
 
 sign my [atabook](https://infugue.atabook.org/) & bmf?
