@@ -7,4 +7,4 @@
 
 art isnt mine!! ^^
 
-sign my [atabook](https://infugue.atabook.org/) & bmf?
+sign my [ata](https://infugue.atabook.org/) & bmf?
