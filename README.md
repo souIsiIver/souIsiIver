@@ -8,5 +8,3 @@
 art isnt mine!! ^^
 
 sign my [ata](https://infugue.atabook.org/) & bmf?
-
-eng/spa (im failing spa btw)
