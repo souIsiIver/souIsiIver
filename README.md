@@ -9,4 +9,4 @@ art isnt mine!! ^^
 
 sign my [ata](https://infugue.atabook.org/) & bmf?
 
-eng/spa (failing spa btw)
+eng/spa (im failing spa btw)
