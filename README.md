@@ -8,3 +8,5 @@
 art isnt mine!! ^^
 
 sign my [ata](https://infugue.atabook.org/) & bmf?
+
+<img src="https://i.imgur.com/59kM8gS.png" width="70px">  <br>
