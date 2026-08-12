@@ -4,7 +4,7 @@
   <img src="https://komarev.com/ghpvc/?username=souIsiIver&color=red&label=✧&abbreviated=true" />
 </p>
 
-<img src="https://i.imgur.com/jIsVaCR.png" width="360px">  <br>
+<img src="https://i.imgur.com/jIsVaCR.png" width="350px">  <br>
 
 art isnt mine!! ^^
 
