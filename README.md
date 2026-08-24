@@ -6,6 +6,6 @@
 
 <img src="https://i.imgur.com/jIsVaCR.png" width="350px">  <br>
 
-art isn't mine!!
+art isn't mine!! ^^
 
 sign my [ata](https://infugue.atabook.org/) & bmf?
