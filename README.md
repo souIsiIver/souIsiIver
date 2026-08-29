@@ -8,4 +8,4 @@
 
 art isn't mine!! ^^
 
-sign my [ata](https://infugue.atabook.org/) & bmf? (i'm lame as hell)
+sign my [ata](https://infugue.atabook.org/) & bmf?
