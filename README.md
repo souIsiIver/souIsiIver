@@ -8,4 +8,4 @@
 
 art isn't mine!! ^^
 
-my [atabook](https://infugue.atabook.org/)
+my [ata](https://infugue.atabook.org/)!
