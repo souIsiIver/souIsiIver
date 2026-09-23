@@ -8,6 +8,6 @@
 
 art isn't mine ^^
 
-lmk if i followed someone problematic!!
-
 my [atabook](https://infugue.atabook.org/)!
+
+(lmk if i followed someone problematic!!)
