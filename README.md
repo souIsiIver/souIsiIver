@@ -10,4 +10,4 @@ art isn't mine ^^
 
 lmk if i followed someone problematic!!
 
-my [atabook](https://infugue.atabook.org/)!
+my [ata](https://infugue.atabook.org/)!
