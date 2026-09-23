@@ -8,6 +8,6 @@
 
 art isn't mine ^^
 
-my [atabook](https://infugue.atabook.org/)! C + H ALWAYS
+my [atabook](https://infugue.atabook.org/)! C + H ALWAYS!!!
 
-(lmk if i followed someone problematic!!)
+(lmk if i followed someone problematic)
