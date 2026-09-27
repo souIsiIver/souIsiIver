@@ -8,4 +8,4 @@
 
 art isn't mine ^^
 
-c+h always even when it's not on my name! [atabook](https://infugue.atabook.org/)!!
+c+h ALWAYS!!! my [atabook](https://infugue.atabook.org/)!!
