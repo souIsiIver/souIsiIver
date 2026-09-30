@@ -10,4 +10,4 @@ art isn't mine ^^
 
 c+h ALWAYS!!!
 
- [ata](https://infugue.atabook.org/)!
+my [ata](https://infugue.atabook.org/)!
