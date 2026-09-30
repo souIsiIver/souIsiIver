@@ -6,8 +6,6 @@
 
 <img src="https://i.imgur.com/jIsVaCR.png" width="350px">  <br>
 
-art isn't mine ^^
-
 c+h ALWAYS!!!
 
 my [ata](https://infugue.atabook.org/)!
