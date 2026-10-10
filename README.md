@@ -5,7 +5,3 @@
 </p>
 
 <img src="https://i.imgur.com/jIsVaCR.png" width="350px">  <br>
-
-c+h ALWAYS!!!
-
-my [ata](https://infugue.atabook.org/)!
