@@ -5,5 +5,3 @@
 </p>
 
 <img src="https://i.imgur.com/jIsVaCR.png" width="300px">  <br>
-
-[atabook](https://infugue.atabook.org)&nbsp;&nbsp;‎✮&nbsp;&nbsp;‎[johtrio](https://fluffle.cc/johtrio)!
